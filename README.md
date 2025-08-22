@@ -14,11 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-91爆料聊天吹水群地址：https://t.me/chiguatt_pro
+
 
 ⏰最新地址(免翻墙) http://bliao10.com
 
 ⏰永久官网(需翻墙) https://91blc.com
+
+91爆料聊天吹水群地址：https://t.me/chiguatt_pro
 
 91爆料APP下载地址： 最新地址 https://5955.ipwrzmos.cc/
 
