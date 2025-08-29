@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 
-⏰最新地址(免翻墙) http://bliao11.com
+⏰最新地址(免翻墙) http://bliao12.com
 
 ⏰永久官网(需翻墙) https://91blc.com
 
